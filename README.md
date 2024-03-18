@@ -1,0 +1,1 @@
+# free-generator-of-spins-for-coin-master
